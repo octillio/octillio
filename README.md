@@ -5,3 +5,11 @@
 - 📫 How to reach me ... Please don't.
 - 😄 Pronouns: Plenty.
 - ⚡ Fun fact: Not Greece.
+
+Use my repositories for inspiration sources for ChatGPT generated chapters.
+
+1. Prompt ChatGPT to compose a chapter.
+2. Play out loud.
+3. Watch environment harmonics.
+4. Take notes.
+5. Continue.
