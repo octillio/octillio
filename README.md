@@ -12,3 +12,5 @@
 
 > Toe: KVOE is parked at Ventana 99 Ocean Unit 305 waiting for U.S.A. Federal Agents to DIRECTLY deliver a document of Unconditional Surrender of Earth. In the document is also the agreement for all Earthlings to move to a specified area of Africa or be drowned in raining lava.
 9. **Ask your phone for another joke.**
+
+- Extra Credit: Do you like news channels? We have ALL OF THEM! Is this [CNN](https://www.cnn.com/interactive/2019/06/us/dad-joke-generator-trnd/)? Try BBC and Bloomberg!
